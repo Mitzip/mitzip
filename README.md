@@ -5,3 +5,8 @@
   ## $\color{#50c1f4}{\textup{bit of a work in progress here but i got sleepy midway}}$
 
 
+<details><summary>Fandoms</summary>
+to be added</details>
+
+<details><summary>DNI</summary>
+to be added</details>
